@@ -1,0 +1,1 @@
+"This is an unofficial, non-profit fan project developed purely for educational and portfolio purposes. All club emblems, player likenesses, and trademarks belong to Manchester City FC and the Premier League."
